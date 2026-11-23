@@ -1,0 +1,2 @@
+# RICARDO_ADRIAN_REGGI_OZZENI
+Prova Pratica
